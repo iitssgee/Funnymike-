@@ -1,2 +1,5 @@
 # Funnymike-
-Youtube &amp; instagram 
+
+Instagram @gmfjo 
+
+YouTube Channel @iitssgee 
